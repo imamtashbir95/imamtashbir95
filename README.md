@@ -1,6 +1,6 @@
 
 ## 🌐 Socials:
-📘 I have written an ebook: [The Art of Self-Learning: How to Stay Ahead in a Fast-Changing World (Amazon)](https://www.amazon.com/dp/B0DZ5Q37BS)
+📘 I have written an ebook: [The Art of Self-Learning: How to Stay Ahead in a Fast-Changing World (Amazon)](https://www.amazon.com/dp/B0H3RB4SPX)
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/imam-tashbir) 
 
